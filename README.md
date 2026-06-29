@@ -1,0 +1,1 @@
+# Skilli_POS_privacy_policy
